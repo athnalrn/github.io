@@ -2,7 +2,7 @@
 San Jose, Bombon, Camarines Sur 
 
 
-## Description and its History 
+## - Description and its History 
 
 Bombon was originally a part of the Quipayo which was one of the earliest mission station in the part of the archipelago. Although mission expeditions were already held as early as 1569, the station was founding in 1578 by two zealous missionaries: Fray Pablo de Jesus and Fray Bartolome de Ruiz Quipayo then became the head of sitios now known as the towns of Libmanan, Calabanga, Siruma, and Bombon. It was some time in 1580 when Frays de Jesus and de Ruiz placed Bombon under the patronage of Our Lady of the Holy Rosary. But it took a little more than two centuries for Bombon to become a parish independent from the Mission of Quipayo. 
 Its church was constructed through the efforts of Franciscan Friars Fr. Juan de la Torre ad Fr. Jose Rebaya. However, it was during the time of Fr. De la Torre that the church’s belfry, the convent, the tribunal, Casa Parroquial and the Casa de Escuelas de Primera Lecturas were constructed. Stories handed down from generation to generation reveal that the tower of Bombon inclined due to a defect in its foundation brought about by a very strong earthquake that occurred in the 18th century. However, despite the leaning position of the belfry, Fr. Juan de la Torre urged the people to push the construction until it was finished. Even when it was newly constructed, the belfry was already inclining, hence, since then, it has been popularly called a “leaning tower”. Fr. Juan de la Torre, became the first parish prest of the Parish of Our Lady of the Holy Rosary. 
