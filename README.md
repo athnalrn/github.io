@@ -10,7 +10,9 @@ From that time to the present, many parish priests served the parish of Bombon. 
 This status of Bombon was attributed to former Governor Jose del Gallego who prioritized the creation of the municipality of Bombon and the efforts of some determined citizens of this municipality namely, Macario Boyja, Juan Nale, Jose Quinonez, Ciriaco Silvestre, and Modesto Balaquiao. Today, Bombon is a sixth class municipality occupying an area of about 4,332 heactares with a population of more or less 22,000. It is composed of eight barangays namely, Pagao, San Antonio, San Fransisco, San Isidro, San Jose, San Roque, Santo Domingo, and Siembre. 
 
 
-**## Lists of Parish Priests (1804 - present )**
+## Lists of Parish Priests (1804 - present )
+
+
 Fray Saturnino Hernandez, 1848-1855 
 Fray Juan Ramos, 1855-1859 
 Fray Balbino Del Castillo, 1859-1861 
