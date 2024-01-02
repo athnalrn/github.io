@@ -147,7 +147,43 @@ Recitation of the Holy Rosary: 6:00 PM (Monday - Saturday)          ![image](htt
 ## Organizational Structure 
 
 ![image](https://github.com/athnalrn/github.io/assets/150888286/61536f9f-08e2-4979-ad6b-025e25db587f)
+
 shot by: Athena A. Alaurin 
+
+# Some Photos of the Parish 
+
+![image](https://github.com/athnalrn/github.io/assets/150888286/0da1eee6-35e9-40ef-b07d-da86db999a75) 
+
+"The Leaning Tower" 
+
+
+## Other additional Informations 
+
+![image](https://github.com/athnalrn/github.io/assets/150888286/f6eb4047-8de0-48f3-a312-5f0cef155c96)
+
+
+![image](https://github.com/athnalrn/github.io/assets/150888286/ec809a8e-1a1a-43b0-ad67-440a1054c39f)
+
+The Parish Sacristy: it is where babies are being baptized. 
+
+
+![image](https://github.com/athnalrn/github.io/assets/150888286/9d2a0ead-a8b6-4cd6-9ff3-b09f13ec6b6d)
+
+## The Office of the Parish 
+
+![image](https://github.com/athnalrn/github.io/assets/150888286/2ff07019-0330-4991-83d9-144768c55458)
+
+## The Secretary of the Parish 
+
+![image](https://github.com/athnalrn/github.io/assets/150888286/088a8f8e-91e3-4ac7-a719-8ee41e243d98)
+
+Ma'am Yem M. Garcillanosa 
+
+
+
+
+
+
 
 
 
