@@ -17,7 +17,61 @@ This status of Bombon was attributed to former Governor Jose del Gallego who pri
 
 ## Lists of Parish Priests (1804 - present )
 
-![image](https://github.com/athnalrn/github.io/assets/150888286/afea961f-a6d6-452f-89bb-3cee5b51bdbc)
+- Fray Saturnino Hernandez, 1848-1855
+
+- Fray Juan Ramos, 1855-1859 
+
+- Fray Balbino Del Castillo, 1859-1861 
+
+- Fray Mariano Zacarias, 1861-1863
+
+- Fray Tomas De Guadalajara, 1864-1866 
+
+- Fray Tomas A. De Guadalajara, 1867-1869 
+
+- Fray Jesus Gonzales, 1869-1870 
+
+- Fray Jesus Gonzales, 1870-1870 
+
+- Fray Jose Serrano, 1870-1877 
+
+- Fray Carlos Cabido, 1877-1878
+
+- Fray Jose Castañol, 1878-1878  
+
+- Fray Andres Prieto, 1878-1882
+
+- Fray Benito Delgado, 1882-1886 
+
+- Fray Joaquin Manteca, 1886-1887 
+
+- Fray Justo Adeva, 1888-1894
+
+- Fray Manuel Salinas, 1894-1897 
+
+- Fray Vicente Varona, 1897-1898
+
+- Fr. Rafael Gallego, 1898-1900
+
+- Fr. Benedict Velez, 1900-1903
+
+- Fr. Lorenzo Cecilia, 1904-1912 
+
+- Fr. Juan Baron, 1912-1915 
+
+- Fr. Santiago Bufete, 1915-1919 
+
+- Fr. Pantaleon Rivera, 1919-1924
+
+- Fr. Sergio Villareal, 1924-1924
+
+- Fr. Jorge Prepotente, 1924-1933 
+
+- Fr. Marcos Requejo, 1933-1936
+
+- Fr. Julio Salcedo, 1937-1939 
+
+- Fr. Felimon, 1939-1940
 
 - Fr. Rustico Recepcion, 1981-1986
   
@@ -43,7 +97,7 @@ This status of Bombon was attributed to former Governor Jose del Gallego who pri
 
 - Fr. Larry C. Nagales
 
-- Rev. Leopondo I. Zarah (PRESENT) 
+- **Rev. Leopondo I. Zarah (PRESENT)**
 
 
 
