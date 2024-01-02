@@ -153,7 +153,7 @@ Recitation of the Holy Rosary: 6:00 PM (Monday - Saturday)          ![image](htt
 
 *shot by: Athena A. Alaurin*
 
-# Some Photos of the Parish 
+# Our Lady of Holy Rosary Parish Gallery ~
 
 ![image](https://github.com/athnalrn/github.io/assets/150888286/9806ab4b-bfa3-419e-ab0d-bc4e837da1f3)
 
@@ -161,7 +161,7 @@ Recitation of the Holy Rosary: 6:00 PM (Monday - Saturday)          ![image](htt
 "The Leaning Tower" 
 
 
-## Other additional Informations 
+## Additional Informations about the Parish 
 
 ![image](https://github.com/athnalrn/github.io/assets/150888286/f6eb4047-8de0-48f3-a312-5f0cef155c96)
 
@@ -175,6 +175,13 @@ The Parish Sacristy: it is where babies are being baptized.
 ## The Office of the Parish 
 
 ![image](https://github.com/athnalrn/github.io/assets/150888286/2ff07019-0330-4991-83d9-144768c55458)
+
+OFFICE HOURS: 
+
+Monday - Saturday: 8:00 AM - 11:30 AM
+                   2:00 PM - 5:00 PM
+
+Sunday: 8:00 AM - 11:30 AM 
 
 ## The Secretary of the Parish 
 
