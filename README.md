@@ -1,17 +1,20 @@
 # Our Lady of Holy Rosary Parish 
-San Jose, Bombon, Camarines Sur 
+*San Jose, Bombon, Camarines Sur* 
 
 
 ## - Description and its History 
 
 
 ![image](https://github.com/athnalrn/github.io/assets/150888286/26a2dc5c-c2ae-4987-833d-ffacd2de0cdb)
-shot by: Athena A. Alaurin
+*shot by: Athena A. Alaurin*
 
 
-Bombon was originally a part of the Quipayo which was one of the earliest mission station in the part of the archipelago. Although mission expeditions were already held as early as 1569, the station was founding in 1578 by two zealous missionaries: Fray Pablo de Jesus and Fray Bartolome de Ruiz Quipayo then became the head of sitios now known as the towns of Libmanan, Calabanga, Siruma, and Bombon. It was some time in 1580 when Frays de Jesus and de Ruiz placed Bombon under the patronage of Our Lady of the Holy Rosary. But it took a little more than two centuries for Bombon to become a parish independent from the Mission of Quipayo. 
+*Bombon* was originally a part of the Quipayo which was one of the earliest mission station in the part of the archipelago. Although mission expeditions were already held as early as 1569, the station was founding in 1578 by two zealous missionaries: Fray Pablo de Jesus and Fray Bartolome de Ruiz Quipayo then became the head of sitios now known as the towns of Libmanan, Calabanga, Siruma, and Bombon. It was some time in 1580 when Frays de Jesus and de Ruiz placed Bombon under the patronage of Our Lady of the Holy Rosary. But it took a little more than two centuries for Bombon to become a parish independent from the Mission of Quipayo. 
+
 Its church was constructed through the efforts of Franciscan Friars Fr. Juan de la Torre ad Fr. Jose Rebaya. However, it was during the time of Fr. De la Torre that the church’s belfry, the convent, the tribunal, Casa Parroquial and the Casa de Escuelas de Primera Lecturas were constructed. Stories handed down from generation to generation reveal that the tower of Bombon inclined due to a defect in its foundation brought about by a very strong earthquake that occurred in the 18th century. However, despite the leaning position of the belfry, Fr. Juan de la Torre urged the people to push the construction until it was finished. Even when it was newly constructed, the belfry was already inclining, hence, since then, it has been popularly called a “leaning tower”. Fr. Juan de la Torre, became the first parish prest of the Parish of Our Lady of the Holy Rosary. 
-From that time to the present, many parish priests served the parish of Bombon. To the early Western explorers, it was noted that the place was home to wild fowls so that people from surrounding settlements would come to the place to hunt for these animals. It is said the name of the town, Bombon, was derived from the Bikol tern bonbon which means, ‘to scatter’ particularly seeds or grains for hunting purposes. For almost 240 years, Bombon was just one of the four barrios of the town of Quipayo. It was the Capitan of Quipayo who directly ruled Bombon. Upon the arrival of the Americans on February 11, 1900, and after the establishment of the civil government in 1903, Bombon became part of the Calabanga. In 1907, after the Act of the Philippine Legislative, Bombon was separated from Calabanga and incorporated as one of the barangays of Magarao where it remained until finally on August 13, 1849, Bombon became a town. Its first appointed mayor was Jose Buenaagua and its first elected mayor was Alfredo Arellano. 
+
+From that time to the present, many parish priests served the parish of Bombon. To the early Western explorers, it was noted that the place was home to wild fowls so that people from surrounding settlements would come to the place to hunt for these animals. It is said the name of the town, Bombon, was derived from the Bikol tern bonbon which means, ‘to scatter’ particularly seeds or grains for hunting purposes. For almost 240 years, Bombon was just one of the four barrios of the town of Quipayo. It was the Capitan of Quipayo who directly ruled Bombon. Upon the arrival of the Americans on February 11, 1900, and after the establishment of the civil government in 1903, Bombon became part of the Calabanga. In 1907, after the Act of the Philippine Legislative, Bombon was separated from Calabanga and incorporated as one of the barangays of Magarao where it remained until finally on August 13, 1849, Bombon became a town. Its first appointed mayor was Jose Buenaagua and its first elected mayor was Alfredo Arellano.
+
 This status of Bombon was attributed to former Governor Jose del Gallego who prioritized the creation of the municipality of Bombon and the efforts of some determined citizens of this municipality namely, Macario Boyja, Juan Nale, Jose Quinonez, Ciriaco Silvestre, and Modesto Balaquiao. Today, Bombon is a sixth class municipality occupying an area of about 4,332 heactares with a population of more or less 22,000. It is composed of eight barangays namely, Pagao, San Antonio, San Fransisco, San Isidro, San Jose, San Roque, Santo Domingo, and Siembre. 
 
 
@@ -148,11 +151,12 @@ Recitation of the Holy Rosary: 6:00 PM (Monday - Saturday)          ![image](htt
 
 ![image](https://github.com/athnalrn/github.io/assets/150888286/61536f9f-08e2-4979-ad6b-025e25db587f)
 
-shot by: Athena A. Alaurin 
+*shot by: Athena A. Alaurin*
 
 # Some Photos of the Parish 
 
-![image](https://github.com/athnalrn/github.io/assets/150888286/0da1eee6-35e9-40ef-b07d-da86db999a75) 
+![image](https://github.com/athnalrn/github.io/assets/150888286/9806ab4b-bfa3-419e-ab0d-bc4e837da1f3)
+
 
 "The Leaning Tower" 
 
@@ -161,13 +165,12 @@ shot by: Athena A. Alaurin
 
 ![image](https://github.com/athnalrn/github.io/assets/150888286/f6eb4047-8de0-48f3-a312-5f0cef155c96)
 
+## The Parish Sacristy 
 
-![image](https://github.com/athnalrn/github.io/assets/150888286/ec809a8e-1a1a-43b0-ad67-440a1054c39f)
+![image](https://github.com/athnalrn/github.io/assets/150888286/313b737f-da79-4c5d-930f-0cfcfaf75967)
+
 
 The Parish Sacristy: it is where babies are being baptized. 
-
-
-![image](https://github.com/athnalrn/github.io/assets/150888286/9d2a0ead-a8b6-4cd6-9ff3-b09f13ec6b6d)
 
 ## The Office of the Parish 
 
@@ -175,7 +178,11 @@ The Parish Sacristy: it is where babies are being baptized.
 
 ## The Secretary of the Parish 
 
-![image](https://github.com/athnalrn/github.io/assets/150888286/088a8f8e-91e3-4ac7-a719-8ee41e243d98)
+![image](https://github.com/athnalrn/github.io/assets/150888286/10be7998-511f-4be7-bf8b-2d13ce8bf2c1) 
+
+![image](https://github.com/athnalrn/github.io/assets/150888286/c7bdd011-c573-4ad5-9603-3de81a4d79d2)
+
+
 
 Ma'am Yem M. Garcillanosa 
 
