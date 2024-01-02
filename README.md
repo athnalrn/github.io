@@ -110,6 +110,46 @@ Sunday: 5:00 Am (Bikol)
 
 Recitation of the Holy Rosary: 6:00 PM (Monday - Saturday)          ![image](https://github.com/athnalrn/github.io/assets/150888286/2191eb11-2927-4a8f-bb3f-5b332bd986d6) Shot by: Athena A. Alaurin
 
+## Calendar of Activities (November - February) 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+## Organizational Structure 
+
+![image](https://github.com/athnalrn/github.io/assets/150888286/61536f9f-08e2-4979-ad6b-025e25db587f)
+shot by: Athena A. Alaurin 
+
+
 
 
 
