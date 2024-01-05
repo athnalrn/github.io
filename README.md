@@ -183,15 +183,13 @@ Monday - Saturday: 8:00 AM - 11:30 AM
 
 Sunday: 8:00 AM - 11:30 AM 
 
-## The Secretary of the Parish 
+## Territorial Jurisdiction 
+description: the area that is under the  care of the parish 
 
-![image](https://github.com/athnalrn/github.io/assets/150888286/10be7998-511f-4be7-bf8b-2d13ce8bf2c1) 
+ Metropolitan Archdiocese of Caceres ~ 
 
-![image](https://github.com/athnalrn/github.io/assets/150888286/c7bdd011-c573-4ad5-9603-3de81a4d79d2)
+![image](https://github.com/athnalrn/github.io/assets/150888286/2cfaecb8-3c0e-4034-bacf-b5d2d3814ce2)
 
-
-
-Ma'am Yem M. Garcillanosa 
 
 
 
